@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **sakrfilip@seznam.cz**
 
-- ⚡ Fun fact **basketball player, league of legends player**
+- ⚡ Fun fact **basketball player**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
